@@ -1,1 +1,1 @@
-<img width="1264" height="711" alt="💜福丸小糸の写真💜" src="https://github.com/user-attachments/assets/3622e6b9-0296-4ad0-ac26-a17508fc2deb" />
+<img width="1264" height="529" alt="福丸小糸のぬいぐるみを持っている写真" src="https://github.com/user-attachments/assets/fa194752-e13a-42cc-bcfe-8587691a4730" />
